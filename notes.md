@@ -1,0 +1,56 @@
+# The Starry Seas
+## Session 1: 20/10/21
+Epoch: island of beginnings
+- First island on the Constellation Archipelago - hub where adventurers find crew
+- Ship Man at Arms - Merchant vessel one of many that sails the star lit road, transporting alcohol, food, fabrics and adventurers
+- We begin a with a few days' sail ahead of us
+- Cpt. Tarrance runs the ship
+- Wycombe and MacKinsley play dice with a cheater on the ship and eventually win their money back using MacKinsley's weighted dice
+- A shoal of rainbow fish (both delicious food and a hallucinogenic depending on how they're cooked) come alongside the ship and the deckhands (and MacKinsley) fish some out
+- Lei and Mhurren have a fight on deck using brooms (through god all things are possible)
+- Eventually we arrive in Epoch; A bustling and _very_ busy port full of ships of all shapes and sizes
+- As we approach, the captain begins to swear - the rudder has been jammed by some *spiderweed*
+- Lei goes overboard in a small boat to cut it free, and a sahuagin attacks the ship
+- It calls to something under the water and a female half-humanoid, half-fish winged figure rises from the water and begins to sing an enchanting song
+- It successfully lures several of the deckhands off the ship, and several of us jump into the water to assist.
+- Wycombe and Lei row the boat around saving people and bashing sahuagin
+- Marmul falcon punches a shark into tiny pieces
+- We save _most_ of the crew
+
+## Session 2: 27/10/21
+- We arrive into Epoch with no further trouble
+- The docks are heaving with ships from all accross the seas; merchants and marines are all over the place. It's bustling and noisy
+- All around merchants are hawking their wares and haggling, the smell of spices strongly fills the air. 
+- Beyond the busy docks is Epoch proper, a fairly large town of a little over 100 buildings.
+- Epoch is wealthy - built of imported wood, bricks and glass, much nicer than what would have been expected from a place like this
+- The town isn't cramped, but reaches all the way to the sea
+- There's a main market road through the middl eof the town that splits at the northern end, one side leading to a crumbling wall and outer gate, and the other through a residential district and towards a church. 
+- Southern end out and accross the bridge towards farmland
+- Tarrence suggests meeting us at the Adventure Inn, a tavern
+- Mhurren remembers the Adventure Inn is _the_ hub for Epoch; it's where anybody who's anybody goes, and it's also where you would go to find adventurers to join your crew
+- A man tries to sell us incredibly shitty jewellery. MacKinsley humours him and buys a very overpriced very shitty shell
+- He tells us the dockmaster is called Frankie and is a very busy man
+- Heading along the market road, it is lined with shops on either side, suited to the needs of adventurers.
+    - There's Angus' Arms (weapons shop flanked by barrels of sheaths), with a sign of a hook holding a sword
+    - The Vucci store, a vibrant red and purple shop with a blue polkerdot awning over it with the pungent smell of perfume and cologne drifting out of it. Inside driftwood manikins show off the latest in adventuring fashion (very practical - pockets everywhere, even on the dresses)
+    - There's an apothecary (Ania's apothecary), which resembles a small cottage
+- The adventure inn is an old galleon held by eight thick anchors with the masts sawn off. A large room has been built on the top of one of the masts as an extension. The entrance is on the middle of the three decks
+- Arriving, we can see an orc standing looking like a bouncer guarding the stairs leading downwards (a sign indicates this is where the board is)
+- An incredibly hungover looking drow stumbles up the stairs and sits in the bar
+- The bar is staffed by a dwarf (Khald), who hands us a bounty from the board after hearing about our tussle with the Sahuagin. There's a bounty of 10 gold for every Sahuagin head we hand in.
+- We have a look at the rest of the jobs on the board. Lei is drawn to a job describing how a graveyard outside Epoch where pirates are buried has been haunted and needs exploring.
+- Chic'Zulub: Completely inhabited by dinosaurs and other beasts. The marines have the idea of claiming the island as a foothold in the area. As a result they're streched very thin in the rest of the archipelago.
+- *Blightwing*, the dragon, has taken over the Scales and has created a swamp around it that sucks ships into it. As a result the large island is surrounded by a vast ship graveyard.
+- Khold describes how the pirates were a founding part of Epoch, but eventually the citizens welcomed in the marine presence instead
+- Khold  tells us the story of the bones
+    - Jack the Candle: Merciless pirate burned the ships he looted with the crew still on board. He also made lovely 
+    - Johnny silvertooth: Terrible oral hygine, had silver teeth. Bitten by a warewolf, went mad when he turned. Died by biting his own toungue in one of his furies
+    - Billy the Barnacle Boy a sea elf joined a group of sahuagin raided ships by clinging to their hulls. Drowned.
+    - Peg leg peggy: tortured her captives by pinching thhem with clothes pegs.
+    - White Beard: The inkiest most black beard anyone had ever seen. They claim he saw a ghost and he died on the spot, turning his hair white.
+- There's a gambling hall upstairs run by Khold's husband Kholdir
+- Lei and Marmul decide they want to spend the day recovering and preparing for the evening. The rest of us decide to spend the day exploring the town.
+- Mhurren takes a wash and traumatises some children
+- We head to Ania's and peruse the apothecary. It's full of potions, herbs and flowers and smells delightful
+- Ania says adventurers challenging blightwing is always buying out all of her potions of acid resistance, and she needs some rare herbs from the hag on the Crags.
+- The druids on the Fragrant Isles know where all the herbs grow and often make trips into Wildblood Tribelands.
